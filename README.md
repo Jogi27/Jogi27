@@ -14,3 +14,8 @@ Here are some ideas to get you started:
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 -->
+
+[DEV Community](https://dev.to/jogi27)![image](https://github.com/Jogi27/Jogi27/assets/117107815/e9d3025d-6a97-453e-a79b-b5e7353a41b2)
+<br>
+<br>
+https://www.cloudskillsboost.google/public_profiles/f2f379e6-8464-44f6-8f25-159a6de464dd
