@@ -20,4 +20,4 @@ Here are some ideas to get you started:
 
 <br>
 <br>
-https://www.cloudskillsboost.google/public_profiles/f2f379e6-8464-44f6-8f25-159a6de464dd
+*[Google CLoud Platform]*(https://www.cloudskillsboost.google/public_profiles/f2f379e6-8464-44f6-8f25-159a6de464dd)
